@@ -1,6 +1,6 @@
 # 重力云机场官网地址
 
-最新地址：[deyoufc.vip](https://def.zlyes.shop/#/register?code=5AOqQgmO)
+最新地址：[deyoufc.vip](https://ads.yeszl.click/#/register?code=5AOqQgmO)
 
 ## 重力云介绍
 
